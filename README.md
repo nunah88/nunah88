@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nunah88
 - 👀 I’m interested in design and photography 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning in faculty of pharmacy 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me, you can call me on +6288217296438 or my email (nurmasnunag58@gmail.com)
 
